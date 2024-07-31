@@ -1,1 +1,5 @@
 # Leymii
+  
+
+
+## List of Ideas
